@@ -1,0 +1,2 @@
+- [Everyone Overcomplicates Container Homes… Try This Instead](https://youtu.be/KL7LyXa8jag)
+- [DIY Spray Foam A Terrible Idea for Shipping Container Home (Do This Instead)](https://youtu.be/_n6GfLuslWU)
