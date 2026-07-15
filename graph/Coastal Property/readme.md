@@ -1,0 +1,1 @@
+- [Reasons NOT to Own Forest Land - Catastrophe at the Coast Property](https://youtu.be/OPJAWu0cJ3M)
