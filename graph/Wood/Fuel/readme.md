@@ -1,0 +1,2 @@
+- [What They Don't Tell You About Wood Fired Water Heaters](https://youtu.be/H4rH63fvcV0)
+- [The Reason I Prefer Softwood Firewood (Nobody Talks About This)](https://youtu.be/6gB-QA33NoE)
